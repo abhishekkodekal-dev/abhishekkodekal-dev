@@ -1,5 +1,5 @@
-# 💫 About Me:
-🌱 I'm currently learning 
+#HI👋, I'm Abhishek Kodekal
+A passionate ECE student from india🇮🇳
 
 
 ## 🌐 Socials:
