@@ -1,4 +1,4 @@
-#HI👋, I'm Abhishek Kodekal
+HI👋, I'm Abhishek Kodekal
 
 
 
