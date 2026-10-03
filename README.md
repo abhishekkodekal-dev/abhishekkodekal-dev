@@ -1,6 +1,5 @@
 ## Hi👋, I'm Abhishek Kodekal 
 
-
 A passionate ECE student from India🇮🇳
 
 ## 🌐 Socials:
